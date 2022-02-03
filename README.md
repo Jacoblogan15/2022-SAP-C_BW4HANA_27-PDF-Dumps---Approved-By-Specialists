@@ -1,0 +1,1 @@
+# 2022-SAP-C_BW4HANA_27-PDF-Dumps---Approved-By-Specialists
